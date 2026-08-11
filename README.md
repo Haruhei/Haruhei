@@ -10,15 +10,15 @@
 </p>
 <div align="center">
 
-𓏲 ࣪. . ໑　 _Rust_   ໑  . ..　 **dni** 13-
+𓏲 ࣪. . ໑　 _rust_   ໑  . ..　 **dni** 13-
 
-Minor !
+minor !
 
 ( 🍓 )　಄　↓   int! ↓　 ಄ ( 🌹 )
 
 𑣲⋆ True detective  -  Ouran Host Club  -  Secretary  - Zelda ᝰ.ᐟ
 
-𑣲⋆ Madoka Magica - HSR - NGE - Deltarune -  ZZZ  ᝰ.ᐟ
+𑣲⋆ Danganronpa - HSR - NGE - Deltarune -  ZZZ  ᝰ.ᐟ
 
 </p>
 <div align="center">
